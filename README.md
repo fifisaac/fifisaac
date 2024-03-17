@@ -1,1 +1,1 @@
-Hi, I'm Isaac. Sometimes I make things and occasionally they're good enough to put on here
+Hi, I'm Isaac. Sometimes I make things and occasionally I decide to put them on here
